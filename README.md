@@ -1,0 +1,2 @@
+# Duyurular
+Diamond Proje Duyurular
